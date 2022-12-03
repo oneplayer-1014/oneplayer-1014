@@ -1,5 +1,7 @@
 <div align="center">
   
+![KakaoTalk_20221203_154700436](https://user-images.githubusercontent.com/112846440/205428610-3064d554-a9c9-4127-b72e-dd5dabac65c5.jpg)
+  
 ![image](https://user-images.githubusercontent.com/112846440/205428039-aa216575-c87c-459c-9aa6-7f56671f621b.png)
 
 <h3> HELLO </h3>
@@ -29,7 +31,7 @@ discord : 세훈#2838
 discord : 세훈#6655
 
 <p align="center">
+  
+![KakaoTalk_20221126_002917679](https://user-images.githubusercontent.com/112846440/205428336-c9312ec9-0f2d-478e-825b-f253ba8ffa3e.jpg)
 
-  ![image](https://user-images.githubusercontent.com/112846440/205428072-16fc02cc-4bb7-4bbd-bbaa-530d6ccf87ce.png)
-
-
+![image](https://user-images.githubusercontent.com/112846440/205428072-16fc02cc-4bb7-4bbd-bbaa-530d6ccf87ce.png)
